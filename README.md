@@ -1,0 +1,1 @@
+Excited to share! The ecommerce project report is finalized, featuring clear descriptions and insightful model diagrams.All necessary details are in eccomerce project report file.pls check that file for better understanding.Thank you.😊😊
